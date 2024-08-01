@@ -1,3 +1,7 @@
+![Uploading 1721689473279.jpg…]()
+![Uploading Screenshot_20240722-181811.png…]()
+![1721690306323](https://github.com/user-attachments/assets/05ba47de-5b0b-4f3d-9e82-6107027a094c)
+![chrome_qrcode_1722496352270](https://github.com/user-attachments/assets/145a4980-f6df-4fc6-8690-74f008d780a0)
 - 👋 Hi, I’m @5515070900256918
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
